@@ -2,4 +2,4 @@
 
 Hello,
 
-I am in the USAF and hopefully will retire having a bachelor's degree in IT.
+I am in the USAF and I will hopefully retire having a master's degree in IT.
